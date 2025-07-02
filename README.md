@@ -6,4 +6,3 @@ I bring a sense of responsibility and a growth mindset to everything I do. I'm a
 
 Let’s connect if you're looking for a self-driven team player eager to contribute to impactful tech projects. I’m excited about what’s ahead and open to opportunities that help shape the future of technology!
 
-🚀 #PythonDeveloper #CSStudent #BackendDevelopment #TechInternship #ContinuousLearner #OpenToWork
